@@ -7,3 +7,4 @@ MEMBERS:
 3. Cheela Mulilo 2410032
 
 REFLECTIONS:
+Martha: A lot is still left to learn but this has been a very edudcational experience.
